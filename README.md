@@ -1,5 +1,19 @@
 jjeekkll
 
-i do robloxian anticheats
+i do roblox anticheats
 
-jajajajajananaj
+
+need a specific one? use one of my points of contact
+
+
+points of contact:
+
+  discord: jjeekkll
+  email: jjeekkllk@gmail.com
+  roblox user: jjeekkll
+
+  
+  
+notable projects:
+
+  none to date
